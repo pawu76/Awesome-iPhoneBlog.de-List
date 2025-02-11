@@ -633,6 +633,10 @@ Gesamt: 4 Min
 - [Humble Brush - Zahnseide](https://www.officina-paris.fr/de/humble-brush/1362-zahnseide-zitrone-50m.html)
 - [Zahnseide - Smyle™](https://we-smyle.de/products/zahnseide)
 
+### Essen protokollieren
+- [Foodnoms - Nutrition Tracker](https://www.foodnoms.com)
+- [YAZIO](https://www.yazio.com)
+
 ## Taschen & Rucksäcke
 
 - [Adore June](https://www.adorejune.com/de/) - Design Rucksäcke, Hip Bags, Taschen für elektronische Geräte
